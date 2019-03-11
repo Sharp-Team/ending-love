@@ -27,3 +27,4 @@ _em gái đáng yêu_ <3
  2. :smoking: UPoRa: Many women many chance. A greater girl will come to you soon... Don't worry... (đã thắp hương)
  3. :smoking: Thaycacac: Stop to begin... Don't worry... (đã thắp hương)
  4. :smoking: Demonslight - Harry Trần: Today is hard, tomorrow will be worse, but the day after tomorrow will be sunshine.(đã thắp hương). 
+ 5. :smoking: YusakiTheJoker: Welcome to my life, just have friendzone anh bro-zone. All Izz Well 
