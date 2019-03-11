@@ -28,3 +28,5 @@ _em gái đáng yêu_ <3
  3. :smoking: Thaycacac: Stop to begin... Don't worry... (đã thắp hương)
  4. :smoking: Demonslight - Harry Trần: Today is hard, tomorrow will be worse, but the day after tomorrow will be sunshine.(đã thắp hương). 
  5. :smoking: YusakiTheJoker: Welcome to my life, just have friendzone anh bro-zone. All Izz Well (đã thắp hương)
+hine.(đã thắp hương). 
+ 5. :smoking: DucPV: Sugger you you go sugger me me go (đã thắp hương)
